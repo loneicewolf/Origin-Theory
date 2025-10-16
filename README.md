@@ -27,9 +27,9 @@ I am in hospital many times.
 One time i had to go under general anesthesia. Now, as curious as i am, i googled about the terms. To learn more, to be *less* worried or nervous. Now, at first, thats good. you prepare yourself, read about stuff, ah it's not that bad after all! you tell yourself, and you *continue to read about it*, then you read about terms, like LMA (Larynx Mask) or Intubation, which..if you google that..suddenly..you wish you didn't know it. Or I did, at least. I wished i never googled that. Now, what actually happened is I felt NOTHING. it went so smooth.
 
 So, The theory of origin [for a lack of better term or name of it], apply to everything where knowing too little makes it.. in one state, and knowing just enough makes it in another state,and knowing too much, makes it another state.
-state 1 = might be, worry, if its something u have to do but never did
-state 2 = you know more, etc
-state 3 = you know too much (NOT in the sense of secret info, lol), like, think the intubation example, if you never heard of it, and suddenly you know what intubation is...Yeah. It doesn't really help you to calm down (in my scenario i just, went with it and..I felt nothing, Like..all good)
+- state 1 = might be, worry, if its something u have to do but never did
+- state 2 = you know more, etc
+- state 3 = you know too much (NOT in the sense of secret info, lol), like, think the intubation example, if you never heard of it, and suddenly you know what intubation is...Yeah. It doesn't really help you to calm down (in my scenario i just, went with it and..I felt nothing, Like..all good)
 
 now.. I could say
-State 4 = is when you have experienced it. hence also feel it. "feel" is a vague term here 
+- state 4 = is when you have experienced it. hence also feel it. "feel" is a vague term here 
